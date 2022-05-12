@@ -6,5 +6,5 @@ I have 1+ year of experience as a test engineer. I was part of the production an
 
 Throughout my professional and academic journey, I find myself passionate about empowering coding and analyzing the data to suggest better business decisions.
 
-Feel free to reach out to me via LinkedIn if you need anything or just to say hi 😊 
+Feel free to reach out to me via LinkedIn(https://www.linkedin.com/in/jaeahchoi/) if you need anything or just to say hi 😊 
 
